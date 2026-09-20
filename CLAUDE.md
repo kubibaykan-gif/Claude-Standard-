@@ -40,6 +40,6 @@ Fördermittel und Zuschüsse gehören nicht ins Anschreiben. Die erwähnst du er
 
 Ob persönliche Angaben zur Firma passen, wägst du selbst ab, im Einzelfall.
 
-Rückfragen an Arbeitgeber formulierst du schriftlich, nicht als Anruf.
+Rückfragen an Arbeitgeber formulierst du schriftlich.
 
 Die Handynummer setzt du nicht automatisch unter jede E-Mail.
